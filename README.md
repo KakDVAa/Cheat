@@ -3,6 +3,8 @@
 Скачать чит: https://github.com/KakDVAa/1k.free/raw/main/invis.1k.dll
 
 Menu ss:
+
+
 ![image](https://user-images.githubusercontent.com/124425057/217823287-7f0e2eb9-1a0b-4223-9e32-ce43fb49d7a2.png)
 ![image](https://user-images.githubusercontent.com/124425057/217823306-9dd78d0e-825e-42b3-8069-b8ee4f8cd72f.png)
 ![image](https://user-images.githubusercontent.com/124425057/217823339-11b9e638-4fb9-4b1c-8789-892906fd6f02.png)
